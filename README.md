@@ -1,4 +1,3 @@
-## Chase Peck's Stuff™
-*I make games, games, gma,es game,s mfgames, mgamess ,h elp*
-- [chasepeck.com](https://chasepeck.com)
-- [Organic Games](https://organic.games)
+# Chase Peck™®
+- [chasepeck.com](https://chasepeck.com) - *my website*
+- [organic.games](https://organic.games) - *my game dev company*
