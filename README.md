@@ -1,3 +1,3 @@
 # Chase Peck™
-- [**chasepeck.com**](https://chasepeck.com)
+- [**chasepeck.net**](https://chasepeck.net)
 - [**Faxrabbit**](https://faxrabb.it)
